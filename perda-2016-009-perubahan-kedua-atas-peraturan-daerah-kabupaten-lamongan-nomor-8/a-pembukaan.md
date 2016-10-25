@@ -1,0 +1,25 @@
+---
+Text-source: OCR (Tesseract 5.4.0, ind) of the official scan https://jdih.lamongankab.go.id/api/documents/peraturan-daerah-kabupaten-lamongan-nomor-9-tahun-2016-tentang-perubahan-56/download
+---
+# Pembukaan
+| SALINAN |
+PROVINSI JAWA TIMUR
+PERATURAN DAERAH KABUPATEN LAMONGAN NOMOR 9 TAHUN 2016
+TENTANG
+PERUBAHAN KEDUA ATAS PERATURAN DAERAH KABUPATEN LAMONGAN NOMOR 8 TAHUN 2001 TENTANG PERUSAHAAN DAERAH AIR MINUM KABUPATEN LAMONGAN
+DENGAN RAHMAT TUHAN YANG MAHA ESA
+BUPATI LAMONGAN,
+Menimbang : aa. bahwa dalam rangka peningkatan pelayanan air bersih kepada masyarakat di Kabupaten Lamongan, diperlukan pembiayaan yang cukup besar pada Perusahaan Daerah Air Minum Kabupaten Lamongan,
+b. bahwa untuk mendukung pembiayaan sebagaimana dimaksud huruf a, Perusahaan Daerah Air Minum mendapatkan pinjaman dari Pemerintah Pusat,
+c. bahwa untuk menyejesaikan pinjaman Perusahaan Daerah Air Minum kepada Pemerintah Pusat, Pemerintah memberikan hibah kepada Pemerintah Daerah untuk digunakan sebagai Penyertaan Modal Daerah (PMD) kepada Perusahaan Daerah Air Minum dalam rangka mengoptimalkan upaya perbaikan kondisi keuangan dan penyelesaian piutang Negara pada Perusahaan Daerah Air Minum yang bersumber dari penerusan pinjaman luar negeri, Rekening Dana Investasi dan Rekening Pembangunan Daerah,
+d. bahwa berdasarkan pertimbangan sebagaimana dimaksud huruf a, huruf b dan huruf c, perlu menetapkan Peraturan Daerah tentang Perubahan Kedua Atas Peraturan Daerah Kabupaten Lamongan Nomor 8 Tahun 2001 tentang Perusahaan Daerah Air Minum Kabupaten Lamongan.
+Mengingat Pasal 18 ayat (6) Undang-Undang Dasar Negara Republik Indonesia Tahun 1945, Undang-Undang Nomor 12 Tahun 1950 tentang Pembentukan Daerah-Daerah Kabupaten di Lingkungan Provinsi Jawa Timur (Berita Negara Republik Indonesia Tahun 1950 Nomor 4i), sebagaimana telah diubah dengan Undang-Undang Nomor 2 Tahun 1965 (Lembaran Negara Republik Indonesia Tahun 1965 Nomor 19, Tambahan Lembaran Negara Republik Indonesia Nomor 2730), Undang-Undang Nomor 17 Tahun 2003 tentang Keuangan Negara iLembaran Negara Republik Indonesia Tahun 2003 Nomor 47, Tambahan Lembaran Negara Republik Indonesia Nomor 4286), Undang-Undang Nomor 1 Tahun 2004 tentang Perbendaharaan Negara (Lembaran Negara Republik Indonesia Tahun 2004 Nomor 5», Tambahan Lembaran Negara Republik Indonesia Nomor 4355), Undang-Undang Nomor 33 Tahun 2004 tentang Perimbangan Keuangan antara Pemerintah Pusat dan Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2004 Nomor 126, Tambahan Lembaran Negara Republik Indonesia Nomor 4438), Undang-Undang Nomor 12 Tahun 2011 tentang Pembentukan Peraturan Perundang-Undangan (Lembaran Negara Republik Indonesia Tahun 2011 Nomor 82, Tambahan Lembaran Negara Republik Indonesia Nomor 5234) , Undang-Undang Nomor 23 Tahun 2014 tentang Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2014 Nomor 244, Tambahan Lembaran Negara Republik Indonesia Nomor 5587) sebagaimana telah diubah beberapa kali, terakhir dengan Undang-Undang Nomor 9 Tahun 2015 (Lembaran Negara Republik Indonesia Tahun 2015 Nomor 58, Tambahan Lembaran Negara Republik Indonesia Nomor 5679),
+8. Peraturan Pemerintah Nomor 79 Tahun 2005 tentang Pedoman Pembinaan dan Pengawasan Penyelenggaraan Pemerintahan Daerah (Lembaran Negara Republik Indonesia Tahun 2005 Nomor 165, Tambahan Lembaran Negara Republik Indonesia Nomor 4593),
+9. Peraturan Pemerintah Nomor 2 Tahun 2012 tentang Hibah Daerah (Lembaran Negara Republik Indonesia Tahun 2012 Nomor 5, Tambahan Lembaran Negara Republik Indonesia Nomor 5272),
+10. Peraturan Presiden Nomor 87 Tahun 2014 tentang Peraturan Pelaksanaan Undang-Undang Nomor 12 Tahun 2011 tentang Pembentukan Peraturan Perundang-Undangan (Lembaran Negara Republik Indonesia Tahun 2014 Nomor 199),
+11. Peraturan Menteri Dalam Negeri Nomor 80 Tahun 2015 tentang Pembentukan Produk Hukum Daerah (Berita Negara Republik Indonesia Tahun 2015 Nomor 2036) 12. Peraturan Menteri Keuangan Nomor 31/PMK.05/ 2016 Tahun 2016 tentang Tata Cara Penyelesaian Piutang Negara yang Bersumber dari Penerusan Pinjaman Luar Negeri, Rekening Dana Investasi, dan Rekening Pembangunan Daerah pada PDAM,
+13. Peraturan Menteri Dalam Negeri Nomor 48 Tahun 2016 tentang Pedoman Penerimaan Hibah dari Pemerintah Pusat kepada Pemerintah Daerah, dan Penyertaan Modal Pemerintah Daerah kepada Perusahaan Daerah Air Minum, dalam rangka Penyelesaian Hutang Perusahaan Daerah Air Minum kepada Pemerintah Pusat secara Non Kas,
+14. Peraturan Daerah Kabupaten Lamongan Nomor 8 Tahun 2001 tentang Perusahaan Daerah Air Minum Kabupaten Lamongan (Lembaran Daerah Kabupaten Lamongan Tahun 2001 8/D) sebagaimana telah diubah dengan Peraturan Daerah Kabupaten Lamongan Nomor 5 Tahun 2008 (Lembaran Daerah Kabupaten Lamongan Tahun 2008 Nomor 11).
+Dengan Persetujuan Bersama DEWAN PERWAKILAN RAKYAT DAERAH KABUPATEN LAMONGAN dan BUPATI LAMONGAN
+MEMUTUSKAN :
+Menetapkan : PERATURAN DAERAH TENTANG PERUBAHAN KEDUA ATAS PERATURAN DAERAH KABUPATEN LAMONGAN NOMOR 8 TAHUN 2001 TENTANG PERUSAHAAN DAERAH AIR MINUM KABUPATEN LAMONGAN.
