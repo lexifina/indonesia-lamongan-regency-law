@@ -1,0 +1,19 @@
+{
+ "country": "ID-JI-LAMONGAN",
+ "acts": [
+  {
+   "slug": "perda-2016-012-perubahan-atas-peraturan-daerah-nomor-18-tahun-2010-tentang-retribusi",
+   "short": "Perda Lamongan Regency 12/2016",
+   "title": "PERATURAN DAERAH KABUPATEN LAMONGAN NOMOR 12 TAHUN 2016 TENTANG PERUBAHAN ATAS PERATURAN DAERAH NOMOR 18 TAHUN 2010 TENTANG RETRIBUSI PEMAKAIAN KEKAYAAN DAERAH",
+   "url": "https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-12-tahun-2016-tentang-perubahan-59",
+   "versions": [
+    {
+     "from": "2016-12-05",
+     "units": 5,
+     "source_url": "https://jdih.lamongankab.go.id/api/documents/peraturan-daerah-kabupaten-lamongan-nomor-12-tahun-2016-tentang-perubahan-59/download",
+     "sha256": "deb09c6a70d5f21399d9e612486b82f4eaf6362937129960795483697146de67"
+    }
+   ]
+  }
+ ]
+}
