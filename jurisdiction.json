@@ -2,8 +2,7 @@
   "path": "id-ji-lamongan",
   "code": "ID-JI-LAMONGAN",
   "name": "Lamongan Regency (Indonesia)",
-  "level": "regency",
-  "parent": "id-ji",
+  "level": "country",
   "repo": "https://github.com/lexifina/indonesia-lamongan-regency-law",
   "build": "built: Peraturan Daerah (Perda) of Kabupaten Lamongan as enacted, Indonesian text, from JDIH Kabupaten Lamongan (Bagian Hukum Sekretariat Daerah Kabupaten Lamongan)"
 }
