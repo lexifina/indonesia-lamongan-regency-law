@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupaten Lamongan Nomor 9 Tahun 2016 tentang Perubahan Kedua Atas Peraturan Daerah Kabupaten Lamongan Nomor 8 Tahun 2001 tentang Perusahaan Daerah Air Minum Kabupaten Lamongan 12 November 2020 Tahun 2016 63 views 72 downloads Lihat Unduh Peraturan Perundang-undangan
+# Peraturan Daerah Kabupaten Lamongan Nomor 9 Tahun 2016 tentang Perubahan Kedua Atas Peraturan Daerah Kabupaten Lamongan Nomor 8 Tahun 2001 tentang Perusahaan Daerah Air Minum Kabupaten Lamongan
 
 Perda Lamongan Regency 9/2016 · 1 versions, from 2016-10-25 (latest in force: 2016-10-25) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-9-tahun-2016-tentang-perubahan-56>
 

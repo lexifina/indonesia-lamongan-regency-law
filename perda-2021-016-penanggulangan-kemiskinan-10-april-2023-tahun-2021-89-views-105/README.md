@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupaten Lamongan Nomor 16 Tahun 2021 tentang Penanggulangan Kemiskinan 10 April 2023 Tahun 2021 89 views 105 downloads Lihat Unduh Peraturan Perundang-undangan
+# Peraturan Daerah Kabupaten Lamongan Nomor 16 Tahun 2021 tentang Penanggulangan Kemiskinan
 
 Perda Lamongan Regency 16/2021 · 1 versions, from 2021-12-27 (latest in force: 2021-12-27) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-16-tahun-2021-tentang-penanggulangan-kemiskinan>
 

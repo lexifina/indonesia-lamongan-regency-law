@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupaten Lamongan Nomor 6 Tahun 2023 tentang Pencabutan Peraturan Daerah Kabupaten Lamongan Nomor 9 Tahun 2011 tentang Ijin Usaha Jasa Konstruksi di Kabupaten Lamongan 13 Juni 2024 Tahun 2023 182 views 137 downloads Lihat Unduh Peraturan Perundang-undangan
+# Peraturan Daerah Kabupaten Lamongan Nomor 6 Tahun 2023 tentang Pencabutan Peraturan Daerah Kabupaten Lamongan Nomor 9 Tahun 2011 tentang Ijin Usaha Jasa Konstruksi di Kabupaten Lamongan
 
 Perda Lamongan Regency 6/2023 · 1 versions, from 2023-08-01 (latest in force: 2023-08-01) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-6-tahun-2023-tentang-pencabutan-peraturan-daerah-kabupaten-lamongan-nomor-9-tahun-2011-tentang-ijin-usaha-jasa-konstruksi-di-kabupaten-lamongan>
 

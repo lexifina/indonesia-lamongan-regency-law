@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupaten Lamongan Nomor 19 Tahun 2019 tentang Perubahan Kedua atas Peraturan Daerah Nomor 16 Tahun 2010 tentang Retribusi Pengujian Kendaraan Bermotor 19 Januari 2026 Tahun 2019 70 views 90 downloads Lihat Unduh Peraturan Perundang-undangan
+# Peraturan Daerah Kabupaten Lamongan Nomor 19 Tahun 2019 tentang Perubahan Kedua atas Peraturan Daerah Nomor 16 Tahun 2010 tentang Retribusi Pengujian Kendaraan Bermotor
 
 Perda Lamongan Regency 19/2019 · 1 versions, from 2019-10-23 (latest in force: 2019-10-23) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-19-tahun-2019-tentang-perubahan-2427>
 

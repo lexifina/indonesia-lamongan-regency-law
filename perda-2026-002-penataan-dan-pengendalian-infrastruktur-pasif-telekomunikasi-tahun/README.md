@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupaten Lamongan Nomor 2 Tahun 2026 tentang Penataan dan Pengendalian Infrastruktur Pasif Telekomunikasi Tahun 2026 62 views 71 downloads Lihat Unduh Peraturan Perundang-undangan
+# Peraturan Daerah Kabupaten Lamongan Nomor 2 Tahun 2026 tentang Penataan dan Pengendalian Infrastruktur Pasif Telekomunikasi
 
 Perda Lamongan Regency 2/2026 · 1 versions, from 2026-04-16 (latest in force: 2026-04-16) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-2-tahun-2026-tentang-penataan-dan-pengendalian-infrastruktur-pasif-telekomunikasi-1>
 

@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupatel Lamongan Nomor 7 Tahun 2018 tentang Penyelengaraan Pendidikan Madrasah Diniyah Takmiliyah 11 November 2020 Tahun 2018 69 views 49 downloads Lihat Unduh Peraturan Perundang-undangan
+# Peraturan Daerah Kabupatel Lamongan Nomor 7 Tahun 2018 tentang Penyelengaraan Pendidikan Madrasah Diniyah Takmiliyah
 
 Perda Lamongan Regency 7/2018 · 1 versions, from 2018-11-26 (latest in force: 2018-11-26) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupatel-lamongan-nomor-7-tahun-2018-tentang-penyelengaraan-31>
 

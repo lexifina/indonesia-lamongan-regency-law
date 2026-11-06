@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupaten Lamongan Nomor 10 Tahun 2018 tentang Pencabutan Atas Peraturan Daerah Nomor 2 Tahun 2012 Tentang izin Gangguan Sebagaimana Telah Diubah Dengan Peraturan Daerah Nomor 4 Tahun 2015 Tentang Perubahan Atas Peraturan Daerah Nomor 2 T 11 November 2020 Tahun 2018 59 views 48 downloads Lihat Unduh Peraturan Perundang-undangan
+# Peraturan Daerah Kabupaten Lamongan Nomor 10 Tahun 2018 tentang Pencabutan Atas Peraturan Daerah Nomor 2 Tahun 2012 Tentang izin Gangguan Sebagaimana Telah Diubah Dengan Peraturan Daerah Nomor 4 Tahun 2015 Tentang Perubahan Atas Peraturan Daerah Nomor 2 T
 
 Perda Lamongan Regency 10/2018 · 1 versions, from 2018-12-10 (latest in force: 2018-12-10) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-10-tahun-2018-tentang-pencabutan-34>
 

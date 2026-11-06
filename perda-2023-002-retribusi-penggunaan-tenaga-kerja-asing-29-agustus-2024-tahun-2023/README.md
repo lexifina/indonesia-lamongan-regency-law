@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupaten Lamongan Nomor 2 Tahun 2023 Tentang Retribusi Penggunaan Tenaga Kerja Asing 29 Agustus 2024 Tahun 2023 159 views 245 downloads Lihat Unduh Peraturan Perundang-undangan
+# Peraturan Daerah Kabupaten Lamongan Nomor 2 Tahun 2023 Tentang Retribusi Penggunaan Tenaga Kerja Asing
 
 Perda Lamongan Regency 2/2023 · 1 versions, from 2023-01-31 (latest in force: 2023-01-31) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-2-tahun-2023-tentang-retribusi-penggunaan-tenaga-kerja-asing>
 

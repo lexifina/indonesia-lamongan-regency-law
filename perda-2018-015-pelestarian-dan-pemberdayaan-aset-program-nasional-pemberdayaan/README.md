@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupaten Lamongan Nomor 15 Tahun 2018 tentang Pelestarian Dan Pemberdayaan Aset Program Nasional Pemberdayaan Masyarakat Mandiri Perdesaan 11 November 2020 Tahun 2018 59 views 56 downloads Lihat Unduh Peraturan Perundang-undangan
+# Peraturan Daerah Kabupaten Lamongan Nomor 15 Tahun 2018 tentang Pelestarian Dan Pemberdayaan Aset Program Nasional Pemberdayaan Masyarakat Mandiri Perdesaan
 
 Perda Lamongan Regency 15/2018 · 1 versions, from 2018-12-31 (latest in force: 2018-12-31) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-15-tahun-2018-tentang-pelestarian-38>
 

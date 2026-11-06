@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupaten Lamongan Nomor 14 Tahun 2019 tentang Penyelenggaraan Tempat Rekreasi Dan Olahraga 11 November 2020 Tahun 2019 69 views 80 downloads Lihat Unduh Peraturan Perundang-undangan
+# Peraturan Daerah Kabupaten Lamongan Nomor 14 Tahun 2019 tentang Penyelenggaraan Tempat Rekreasi Dan Olahraga
 
 Perda Lamongan Regency 14/2019 · 1 versions, from 2019-10-23 (latest in force: 2019-10-23) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-14-tahun-2019-tentang-penyelenggaraan-21>
 

@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupaten Lamongan Nomor 12 Tahun 2021 tentang Inovasi Daerah 4 November 2021 Tahun 2021 124 views 123 downloads Lihat Unduh ← Prev 1 2 3 4 ... 10 Next → Jaringan Dokumentasi dan Informasi Hukum Daerah - Menyediakan akses mudah dan cepat ke seluruh produk hukum daerah Navigasi Dokumen Berita Statistik Kontak Bantuan FAQ Tautan JDIH Nasional Database Peraturan Pengunjung Hari ini 1
+# Peraturan Daerah Kabupaten Lamongan Nomor 12 Tahun 2021 tentang Inovasi Daerah
 
 Perda Lamongan Regency 12/2021 · 1 versions, from 2021-09-24 (latest in force: 2021-09-24) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-12-tahun-2021-tentang-inovasi-daerah>
 

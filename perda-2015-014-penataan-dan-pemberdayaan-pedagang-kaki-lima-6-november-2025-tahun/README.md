@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupaten Lamongan Nomor 14 Tahun 2015 Tentang Penataan Dan Pemberdayaan Pedagang Kaki Lima 6 November 2025 Tahun 2015 180 views 141 downloads Lihat Unduh Peraturan Perundang-undangan
+# Peraturan Daerah Kabupaten Lamongan Nomor 14 Tahun 2015 Tentang Penataan Dan Pemberdayaan Pedagang Kaki Lima
 
 Perda Lamongan Regency 14/2015 · 1 versions, from 2016-03-15 (latest in force: 2016-03-15) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-14-tahun-2015-tentang-penataan-70>
 

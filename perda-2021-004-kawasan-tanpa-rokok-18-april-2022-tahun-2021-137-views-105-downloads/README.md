@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupaten Lamongan Nomor 4 Tahun 2021 tentang Kawasan Tanpa Rokok 18 April 2022 Tahun 2021 137 views 105 downloads Lihat Unduh Peraturan Perundang-undangan
+# Peraturan Daerah Kabupaten Lamongan Nomor 4 Tahun 2021 tentang Kawasan Tanpa Rokok
 
 Perda Lamongan Regency 4/2021 · 1 versions, from 2021-03-02 (latest in force: 2021-03-02) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-4-tahun-2021-tentang-kawasan-tanpa-rokok>
 

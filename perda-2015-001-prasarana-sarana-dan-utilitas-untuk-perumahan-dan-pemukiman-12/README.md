@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupaten Lamongan Nomor 1 Tahun 2015 tentang Prasarana, Sarana Dan Utilitas Untuk Perumahan Dan Pemukiman 12 November 2020 Tahun 2015 70 views 73 downloads Lihat Unduh Peraturan Perundang-undangan
+# Peraturan Daerah Kabupaten Lamongan Nomor 1 Tahun 2015 tentang Prasarana, Sarana Dan Utilitas Untuk Perumahan Dan Pemukiman
 
 Perda Lamongan Regency 1/2015 · 1 versions, from 2015-03-10 (latest in force: 2015-03-10) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-1-tahun-2015-tentang-prasarana-60>
 

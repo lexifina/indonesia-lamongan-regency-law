@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupaten Lamongan Nomor 8 Tahun 2019 tentang Badan Usaha Milik Desa 10 November 2020 Tahun 2019 73 views 72 downloads Lihat Unduh Peraturan Perundang-undangan
+# Peraturan Daerah Kabupaten Lamongan Nomor 8 Tahun 2019 tentang Badan Usaha Milik Desa
 
 Perda Lamongan Regency 8/2019 · 1 versions, from 2019-08-09 (latest in force: 2019-08-09) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-8-tahun-2019-tentang-badan-16>
 

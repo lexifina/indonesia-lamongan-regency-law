@@ -1,4 +1,4 @@
-# Peraturan Daerah Kabupaten Lamongan Nomor 15 Tahun 2021 Tentang Penyelenggaraan Penanggulangan Bencana Alam Dan Non Alam 21 November 2022 Tahun 2021 109 views 97 downloads Lihat Unduh Peraturan Perundang-undangan
+# Peraturan Daerah Kabupaten Lamongan Nomor 15 Tahun 2021 Tentang Penyelenggaraan Penanggulangan Bencana Alam Dan Non Alam
 
 Perda Lamongan Regency 15/2021 · 1 versions, from 2021-11-24 (latest in force: 2021-11-24) · <https://jdih.lamongankab.go.id/dokumen/peraturan-daerah-kabupaten-lamongan-nomor-15-tahun-2021-tentang-penyelenggaraan-penanggulangan-bencana-alam-dan-non-alam>
 
